@@ -137,7 +137,7 @@ These activities help me maintain a healthy lifestyle and improve teamwork and d
 ## GitHub
 
 GitHub Profile:
-https://github.com/lpty29ctu
+https://github.com/lpty2996-ct
 
 ---
 
